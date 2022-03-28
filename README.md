@@ -4,4 +4,4 @@
 
  You can visit [my website](https://kais-corner.xyz) to see more!  
  
-> Fun Fact: Every single electronic device that I own is in some way or form modded.
+> Fun Fact: Every single electronic device that I own is in some way or form modified.
